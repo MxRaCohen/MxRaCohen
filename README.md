@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 👋 Hi, I’m @therealrah42
+- 👋 Hi, I’m @MxRaCohen
 - 👀 I’m interested in inspiring the next generation of anachronistic technomancers. 
 - 🌱 I’m currently learning how I want to fit into the world. 
 - 💞️ I’m looking to collaborate on poetry and programming for a better tomorrow! 
